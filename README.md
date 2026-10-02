@@ -1,0 +1,1 @@
+# Ficha-de-anamnese-diabetes
